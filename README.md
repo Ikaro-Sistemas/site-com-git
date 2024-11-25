@@ -1,0 +1,1 @@
+inicianto o sincronismo
